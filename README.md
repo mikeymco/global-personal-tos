@@ -24,8 +24,6 @@ NO exceptions, unless my personal and explicit consent is:
 
 ---
 
-I will worry about, judge, shame, guilt, deceive, and otherwise alter myself on behalf of my whole reality. Past, present, and future. NO other is welcome, invited, or allowed to perform such functions (or any of those listed above) for me.
-
 As my _real actions_ do not observably or definably overstep any boundaries, I am otherwise _encouraged_ to feel, think, project, percieve, explore, and embody myself in _any_ way.
 
 ---
