@@ -1,6 +1,6 @@
 # Global-Personal Terms of Use / Service
 
-An externally anchored keystone and boundaries for my subjective experiences, inner world, thoughts, emotions, and spirituality. My response to a life of physical, sexual, mental, emotional, spiritual, and existential abuse.
+An externally anchored, real, keystone and boundary definition for my subjective inernal experiences, inner world, thoughts, emotions, and spirituality. Created in response to a life of physical, sexual, mental, emotional, spiritual, and existential abuse.
 
 ---
 
