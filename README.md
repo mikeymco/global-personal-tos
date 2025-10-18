@@ -10,15 +10,15 @@ Definitions:
 
 ---
 
-While my physical actions do not observably violate real boundaries, I am _encouraged_ to feel, think, project, percieve, explore, and embody myself in _any_ way.
+I will, and do, welcome the resulting effects of my past and present actions (as they are provably real).
 
-I will, and do, humbly welcome the effects and consequences of my past, present, any future actions (as they are provable via real records or data).
+While my physical actions do not observably violate real boundaries, I am _encouraged_ to feel, think, project, percieve, explore, and embody myself.
 
----
+I will NOT, and do NOT, require the presence, permission, authorization, or authentication of any other for access to or expression of myself.
 
-I do not, and will not, accept ANY responsibility or accountability for any (claimed) effects I may (or may not) have on non-demonstrable or subjectively experienced realities (such as: inner worlds, spiritualities, “scriptures”, rulesets, moralities, etc).
+I will NOT, and do NOT, consent to ANY internal connection with or hosting of others within myself.
 
-WIP: I do NOT consent to ANY internal connection with or hosting of others within myself. For now, at all. No exceptions.
+I will NOT, and do NOT, accept any responsibility or accountability for (claimed) effects I may (or may not) have on any other's non-demonstrable or subjectively experienced reality (such as: inner worlds, spiritualities, “scriptures”, rulesets, moralities, etc).
 
 ---
 
