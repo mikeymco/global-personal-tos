@@ -1,6 +1,6 @@
 # Global-Personal Terms of Use / Service
 
-An externally anchored, real, and version-controlled definition for inernal boundaries, experiences, inner world, thoughts, emotions, and spirituality. Created in response to a life of physical, sexual, mental, emotional, spiritual, and existential abuse.
+An externally anchored, real, and version-controlled definition for internal-external boundaries, expressions, and perceptions. Created in response to a life of physical, sexual, mental, emotional, spiritual, and existential abuse.
 
 ---
 
@@ -10,21 +10,19 @@ Definitions:
 
 ---
 
-I will, and do, welcome and accept real responses to and consequences (cause and effect) for my past, present, or future actions (as provable via real records or data).
+While my real actions do not observably violate real boundaries, I am _encouraged_ to feel, think, project, percieve, explore, and embody myself in _any_ way.
+
+I will, and do, humbly welcome the effects and consequences for my past, present, or future actions (as they are provable via real records or data).
 
 ---
+
+I do not, and will not, accept ANY responsibility for or accountability for any (claimed) effects I may (or may not) have on non-demonstrable or subjectively experienced planes (such as: inner worlds, spiritualities, “scriptures”, rulesets, or dimensionalities).
 
 I do NOT consent to ANY interaction, relating to, or connection with anything or anyone outside of real, physically anchored, dimensionalities.
 
-I do not, and will not, accept ANY responsibility for or accountability for any (claimed) effects I may (or may not) have on non-demonstrable or subjectively experienced planes, inner worlds, spiritualities, “scriptures”, rulesets, or dimensionalities.
-
-NO exceptions, unless my personal and explicit consent is:
-- Granted within a container of a mutually negotiated, real, and accessible to all involved parties, agreement
-- Limited in scope to this "one's" present lifetimes (flesh, legal, and digital entities)
-
----
-
-While my _real actions_ do not observably violate any _physically defined_ boundaries, I am otherwise _encouraged_ to feel, think, project, percieve, explore, and embody myself in _any_ way.
+NO exceptions, except in the case my personal and explicit consent is:
+- Granted within a mutually negotiated, real, and accessible to all involved parties, contract
+- Limited in scope and duration to the relevant connection and moment
 
 ---
 
