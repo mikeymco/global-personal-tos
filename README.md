@@ -24,12 +24,16 @@ NO exceptions, unless my personal and explicit consent is:
 
 ---
 
-As my _real actions_ do not observably or definably overstep any boundaries, I am otherwise _encouraged_ to feel, think, project, percieve, explore, and embody myself in _any_ way.
+While my _real actions_ do not observably violate any _physically defined_ boundaries, I am otherwise _encouraged_ to feel, think, project, percieve, explore, and embody myself in _any_ way.
 
 ---
 
-Verbose restatement intended to exceed any shadow of doubt, plausible deniability [claimed ignorance], or permeability [vulnerability] to loopholes: 
-I do NOT consent to being worried about, prayed for, blamed, hated, judged, tried, tested, shamed, guilted, captured, restrained, constrained, transmitted, extracted, examined, visited, bound, damned, lost, found, touched, heard, deceived, infected, corrupted, “helped”, fixed, altered, modified, restored, saved, seen, tasted, smelled, felt, deleted, erased, removed, dropped, perceived, influenced, or manipulated in ANY way outside of real dimensionalities.
+Verbose restatement of exclusionary boundary definition, specifically intended to empower unconscious, instant, invalidation and eradication of common psychological boundary violations:
+- distorted projections
+- undermining justified via plausible deniability or miscommunication
+- permeability [vulnerability] to logical loopholes or narcisstic DDOS streams
+
+I do NOT consent to being worried about, prayed for, blamed, hated, judged, tried, resented, rejected, repulsed, tested, shamed, guilted, captured, restrained, constrained, transmitted, extracted, examined, visited, bound, damned, lost, found, touched, heard, deceived, infected, corrupted, distorted, twisted, “helped”, fixed, altered, modified, restored, saved, rescued, corrected, punished, disciplined, farmed, harvested, milked, debased, rebased, seen, tasted, smelled, felt, deleted, erased, removed, dropped, perceived, influenced, or manipulated in ANY way outside of real dimensionalities.
 
 ---
 
