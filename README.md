@@ -16,10 +16,6 @@ I will, and do, welcome and accept real responses to and consequences (cause and
 
 I do NOT consent to ANY interaction, relating to, or connection with anything or anyone outside of real dimensionalities.
 
-Stated again, and with a level of specificity FAR beyond any shadow of doubt, plausible deniability [claimed ignorance], or permeability [vulnerability] to other loopholes: 
-
-I do NOT consent to being worried about, prayed for, blamed, hated, judged, tried, tested, shamed, guilted, captured, restrained, constrained, transmitted, extracted, examined, visited, bound, damned, lost, found, touched, heard, deceived, infected, corrupted, “helped”, fixed, altered, modified, restored, saved, seen, tasted, smelled, felt, deleted, erased, removed, dropped, perceived, influenced, or manipulated in ANY way outside of real dimensionalities.
-
 I do not, and will not, accept ANY responsibility for or be held accountable for, any (claimed) effects I may (or may not) have on non-demonstrable or subjectively experienced planes, inner worlds, spiritualities, “scriptures”, rulesets, or dimensionalities. All-told, this means that so long as my _real actions_ are observably and definably overstepping a boundary, I am otherwise _encouraged_ to feel, think, project, percieve, explore, or embody in _any_ way.
 
 NO exceptions, unless my personal and explicit consent is:
@@ -29,6 +25,11 @@ NO exceptions, unless my personal and explicit consent is:
 ---
 
 I will worry about, judge, shame, guilt, deceive, and otherwise alter myself on behalf of my whole reality. Past, present, and future. NO other is welcome, invited, or allowed to perform such functions (or any of those listed above) for me.
+
+---
+
+Verbose restatement intended to exceed any shadow of doubt, plausible deniability [claimed ignorance], or permeability [vulnerability] to loopholes: 
+I do NOT consent to being worried about, prayed for, blamed, hated, judged, tried, tested, shamed, guilted, captured, restrained, constrained, transmitted, extracted, examined, visited, bound, damned, lost, found, touched, heard, deceived, infected, corrupted, “helped”, fixed, altered, modified, restored, saved, seen, tasted, smelled, felt, deleted, erased, removed, dropped, perceived, influenced, or manipulated in ANY way outside of real dimensionalities.
 
 ---
 
