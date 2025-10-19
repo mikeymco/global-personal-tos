@@ -10,7 +10,7 @@ Definitions:
 
 ---
 
-I will, and do, welcome the resulting effects of my past and present actions (as they are provably real).
+I will, and do, welcome the resulting effects of my past and present actions (as they are demonstrably real).
 
 While my physical actions do not observably violate real boundaries, I am _encouraged_ to feel, think, project, percieve, explore, and embody myself.
 
@@ -22,7 +22,7 @@ I will NOT, and do NOT, accept any responsibility or accountability for (claimed
 
 ---
 
-Verbose restatement of exclusionary boundary definition, specifically intended to empower unconscious, instant invalidation and eradication of common psychological boundary crossings:
+Verbose restatement of boundary definition, specifically using exclusionary language to empower unconscious, instant invalidation and eradication of common psychological boundary crossings:
 - distorted or manipulative projections
 - undermining justified as miscommunication [plausible deniability]
 - permeability [vulnerability] to logical loopholes or narcisstic DDOS streams
