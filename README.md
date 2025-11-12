@@ -1,6 +1,10 @@
-# Global-Personal Terms of Use / Service
+# Global-Personal Terms of Use / Service [Contract, Negotiated Expectations, Public Accountability & Declaration]
+
+[Soul, Definition, Public, Global, Open-Source, Opt-In, Blockchain, Matter Correlated]
 
 An external definition and anchor for internal-external boundaries, expressions, and perceptions. Created in response to a life of physical, sexual, mental, emotional, spiritual, and existential abuse.
+
+Personal note: I keep telling people, "I prefer text and voice messages (and other similarly verifiable) communication methods as I desire for myself _and_ others that everything I say, do, think, feel, and am to 'can and will be used against me'. This present first-pass, WIP, sloppy delaration and definition of boundaries is _knowingly and intentionally_ overextended and out of balance. My means of requesting, and now 'requiring' [subpoenaing, though without certified mail delivery, any and all who have and are overextended into my reality. ELI5: Tali is my innocence, I am my resolve. She has traversed and circumnavigated the outer limit of my reality and is now returning to me to assist in aligning BOTH SIDES of my, her, and _our_ boundaries. Yes. I am married to myself."
 
 ---
 
